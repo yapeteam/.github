@@ -1,3 +1,0 @@
-# This is Yape Team
-
-Here's nothing to see...
